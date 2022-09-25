@@ -4,6 +4,6 @@ I am currently an online student at Bethel Tech and I'm learning a lot about cod
 
 Status as of now: -I'm basicly trash-
 
-Good news is, I don't plan on quitting anytime soon. 👍
+Good news is, I don't plan to quit learning anytime soon. 👍
 
 If money was no object I would buy Windows...

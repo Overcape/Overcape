@@ -1,7 +1,6 @@
 Hey, I'm Ben and I enjoy all sorts of technology and hope to make a career out of it someday. 
 
-I am currently an online student at Bethel Tech and I'm learning a lot about coding.
+I learned coding at Bethel Tech.
 
-Status as of now: -I'm basicly trash-
+Coding status as of now: -I'm basicly trash, but at least I know what I'm doing.
 
-Good news is, I don't plan to quit learning anytime soon. 👍
